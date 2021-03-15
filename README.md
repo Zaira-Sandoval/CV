@@ -1,3 +1,2 @@
 # CV
-My CV
-zai la mas linda
+My CV 
